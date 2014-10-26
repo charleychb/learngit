@@ -1,4 +1,3 @@
-我是曹洪彬和黄梓仪
-我正在努力学习git的时光传输机。
-哈哈哈！！！
+Oh my god!!!
+This is not chinese.
 I am chb.
